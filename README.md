@@ -1,1 +1,1 @@
-# DumbWays.id
+Sudah di jelaskan di codenya
